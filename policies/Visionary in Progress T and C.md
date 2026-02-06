@@ -1,23 +1,26 @@
 # Terms and Conditions  
 **Visionary In Progress**  
-_Last updated: July 23, 2025_
+_Last updated: February 6th, 2026_
 
 ---
 
-## Welcome, Visionary! ✨  
-By joining Visionary In Progress, you’re stepping into a soft yet powerful space built for digital creators, AI-curious minds, and soulful productivity seekers — especially Black women and women of colour who crave rhythm over rush. These Terms and Conditions outline what you can expect from us, and what we kindly ask of you in return.
+These Terms and Conditions outline the conditions under which you access and participate in Visionary In Progress. They exist to protect the space, its members, and its creators, and to ensure clarity around use, access, and boundaries.
+
+By joining or continuing to use this community, you agree to the terms below.
 
 ---
 
 ## 1. Membership Expectations  
-We hold community care at the centre. By joining, you agree to:
+Visionary In Progress is a values-led space held with care.
 
-- Engage respectfully with all members  
-- Refrain from harassment, discrimination, or harmful behaviour  
-- Avoid spamming or unsolicited promotion  
-- Honour the values of compassion, integrity, and intentional creation  
+By joining, you agree to:
 
-We reserve the right to remove anyone who does not align with these values — no refunds will be issued in such cases.
+- engage respectfully with other members
+- refrain from harassment, discrimination, or harmful behaviour
+- avoid spamming or unsolicited promotion
+- honour the principles of care, integrity, and intentional creation
+
+We reserve the right to remove access for behaviour that compromises the safety or integrity of the space. No refunds are issued in cases of removal for breach of these terms.
 
 ---
 
@@ -101,17 +104,16 @@ These Terms and Conditions shall be governed by and construed in accordance with
 
 ## 11. Amendments & Updates  
 
-We may update these terms from time to time to reflect community growth or platform changes.
+These Terms may be updated periodically to reflect changes in the community, platform, or legal requirements.
 
-- All updates will be posted within the Skool community  
-- Continued use of the space after updates implies acceptance  
+Updates will be shared within the Skool community. Continued access or participation after changes indicates acceptance of the updated terms.
 
-If you ever have questions, we welcome dialogue — this is a co-created space.
+Questions or clarifications can be directed to the admin team.
 
 ---
 
-## Closing Notes  
+## Closing 
 
-This isn’t just a legal document — it’s a mutual agreement. You are not just a customer here, but a co-creator. Thank you for honouring the boundaries that make this space safe, inspiring, and sustainable.
+These Terms exist to create clear, sustainable boundaries for everyone involved.
 
-**You’re not behind — you’re just in progress.**
+They are not designed to police participation, but to protect the space, its members, and the work shared within it.
